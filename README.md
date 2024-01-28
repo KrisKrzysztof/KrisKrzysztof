@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project when can I use my abilities, get experience and of course earn first money from programming.
 - 📫 How to reach me: facebook messenger https://www.linkedin.com/in/krzysztofams
 - 😄 Pronouns: Mr.
-- ⚡ Fun fact: I moved to the Netherlands to earn some money and move back to bigger city in Poland, but now I live in Amsterdam since 2011 year. Okay, maybe it is not so funny... but interesting... maybe. ;)
+- ⚡ I moved to the Netherlands to earn some money and move back to bigger city in Poland... but I loved Amsterdam and decided to stay there ;)
 
 <!---
 KrisKrzysztof/KrisKrzysztof is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
